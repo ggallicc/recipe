@@ -2,5 +2,5 @@
 
 Cook meat
 Serve with potatoes
-Put cream spinash
+Put cream spinach
 Eat
